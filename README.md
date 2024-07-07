@@ -1,1 +1,1 @@
-# Cognizant_Ai_Virtual_Internship
+# Cognizant-Artificial-intelligence-Forage-internship-Tasks
